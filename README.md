@@ -9,7 +9,6 @@ Meu nome é Raissa Fernandes
   ### Você pode entrar em contato comigo 💋
   raissafernandes591@gmail.com
   
-  @_raiifernandes
 ![](https://media1.tenor.com/m/GAnTP0EpHxkAAAAd/rick-and-morty.gif)
 
 
