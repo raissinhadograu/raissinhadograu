@@ -10,8 +10,7 @@ Meu nome é Raissa Fernandes
   raissafernandes591@gmail.com
   
   @_raiifernandes
-
-  ![](https://tenor.com/pt-BR/view/rick-and-morty-gif-23302207)
+![](https://tenor.com/pt-BR/view/rick-and-morty-gif-23302207)
 
 
 
